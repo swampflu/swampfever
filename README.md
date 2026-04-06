@@ -1,4 +1,4 @@
-swamp / mick / mark
+swamp / mick <- main names
 
 Not as active anymore but im still kickin 'round
 
