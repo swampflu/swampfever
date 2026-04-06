@@ -1,6 +1,6 @@
 swamp / mick <- main names you can call me by
 
-
+[sp ask & draw!!](/https://sniperbullets.straw.page/)
 
 c+h friendly
 
